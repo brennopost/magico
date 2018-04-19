@@ -1,2 +1,2 @@
 # magico
-Mágico que pede nudes
+magic ai
